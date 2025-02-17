@@ -2,6 +2,6 @@
 
 My photography portfolio
 
-## Contact
+## Socials/Contact
 
 [TikTok](https://www.tiktok.com/@peyton.s.photography?)
